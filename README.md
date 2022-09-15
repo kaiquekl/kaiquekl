@@ -4,3 +4,9 @@
 -	:yum:meu imail de contato é kaique.loures.andrade@escola.pr.gov.br
 - 🌱 Eu estou interessado em aprender a programar novas linguagens.
 - 💞️ Eu estou aprendendo rescentemente a programar a linguagem de JavaSkript e scratch
+- :scream_cat:(55)8790-8276 chama BB brota kkkk
+- :scream_cat:@kaiquin_loures
+- atacante nato camisa 9 do atletico paranaense 
+- tropa do arranca diu
+- curitiba/pr
+- #pobre
