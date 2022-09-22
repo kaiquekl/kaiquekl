@@ -6,7 +6,7 @@
 - 💞️ Eu estou aprendendo rescentemente a programar a linguagem de JavaSkript e scratch
 - :scream_cat:(55)8790-8276 chama BB brota kkkk
 - :scream_cat:@kaiquin_loures
-- atacante nato camisa 9 do atletico paranaense 
-- tropa do arranca diu
-- curitiba/pr
-- #pobre
+- :hot_face:atacante nato camisa 9 do atletico paranaense 
+- :hot_face:tropa dos sem valores
+- :heart_eyes_cat:curitiba/pr
+- :heart_eyes_cat:#pobre
